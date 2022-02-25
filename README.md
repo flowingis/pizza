@@ -2,6 +2,8 @@
 
 La pizza di Flowing è buonissima, seguici su [#flw-cooking]() per nuove ricette.
 
+Credits: [Impasto](https://ricette.giallozafferano.it/Impasto-per-pizza.html)
+
 ## Impasto
 
 Ecco gli ingredienti per un impasto speciale
