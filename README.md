@@ -2,7 +2,7 @@
 
 La pizza di Flowing è buonissima, seguici su [#flw-cooking]() per nuove ricette.
 
-Credits: [Margherita](https://ricette.giallozafferano.it/Pizza-Margherita.html), [Salame e olive](https://ricette.giallozafferano.it/Pizza-con-salame-e-olive.html), [Pomodorini gialli, acciughe e capperi](https://ricette.giallozafferano.it/Pizza-con-pomodorini-gialli-acciughe-e-capperi.html)
+Credits: [Margherita](https://ricette.giallozafferano.it/Pizza-Margherita.html), [Salame e olive](https://ricette.giallozafferano.it/Pizza-con-salame-e-olive.html), [Pomodorini gialli, acciughe e capperi](https://ricette.giallozafferano.it/Pizza-con-pomodorini-gialli-acciughe-e-capperi.html), [Romana](https://ricette.giallozafferano.it/Pizza-Romana.html) 
 
 ## PER CONDIRE
 
