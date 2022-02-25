@@ -16,3 +16,9 @@ Ecco gli ingredienti per un impasto speciale
 - Sale fino 10 g
 - Lievito di birra fresco (oppure 1,5 se secco) 4 g
 
+### PREPARAZIONE
+
+![step 1,2,3](https://ricette.giallozafferano.it/images/ricette/238/23808/23808_draft-impasto-per-pizza_strip_1-3.jpg)
+*Photo credits: [Giallo Zafferano](https://ricette.giallozafferano.it/)*
+
+Per preparare la pasta per la pizza abbiamo scelto di impastare il tutto a mano, ma se preferite utilizzare l’impastatrice potrete seguire lo stesso procedimento, utilizzando il gancio a velocità medio bassa. Come prima cosa versate le due farine in una ciotola [1], sbriciolate il lievito all'interno [2] e versate un po' della dose di acqua [3]. La temperatura ideale dell'acqua è di 25°.
