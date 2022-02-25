@@ -27,3 +27,12 @@ Credits: [Margherita](https://ricette.giallozafferano.it/Pizza-Margherita.html),
 - Acciughe sott'olio già scolate 80 g
 - Capperi 60 g
 - Pomodorini gialli a pacchetelle 300 g
+
+### Romana
+
+- Passata di pomodoro 700 g
+- Fiordilatte 600 g
+- Origano 10 g
+- Olio extravergine d'oliva q.b.
+- Acciughe sott'olio 16 filetti
+- Sale fino 20 g
