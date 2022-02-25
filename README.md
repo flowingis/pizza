@@ -50,3 +50,21 @@ Ottenuto un bel panetto liscio, lasciatelo riposare sul piano di lavoro per una 
 *Photo credits: [Giallo Zafferano](https://ricette.giallozafferano.it/)*
 
 Rigiratelo su se stesso [13], dategli la forma di una sfera [14]. Trasferite l'impasto così formato in una ciotola, coprite con pellicola trasparente [15] e lasciate lievitare. Per comodità potete mettere la ciotola in forno spento ma con la luce accesa, così l’interno raggiungerà la temperatura di 26-28°, ideale per la lievitazione; in alternativa potete anche tenere la bacinella in un luogo caldo. I tempi sono approssimativi poiché ogni impasto, la temperatura e le condizioni metereologiche influenzano la lievitazione: mediamente l’impasto dovrebbe impiegare 6 ore a raddoppiare di volume.
+
+![step 16,17,18](https://ricette.giallozafferano.it/images/ricette/238/23808/23808_draft-impasto-per-pizza_strip_16-18.jpg)
+
+*Photo credits: [Giallo Zafferano](https://ricette.giallozafferano.it/)*
+
+Trascorso il tempo della lievitazione, l'impasto sarà bello gonfio [16], quindi trasferitelo sul piano da lavoro e dividetelo con un tarocco in 3 pezzi da 265 g [17]. Se dovesse servirvi, potete infarinare leggermente il piano di lavoro. Ora prendete ciascuna porzione e come fatto prima sollevate un lembo di pasta [18] e portatelo verso l'interno. 
+
+![step 19,20,21](https://ricette.giallozafferano.it/images/ricette/238/23808/23808_draft-impasto-per-pizza_strip_19-21.jpg)
+
+*Photo credits: [Giallo Zafferano](https://ricette.giallozafferano.it/)*
+
+Rifate poi la stessa cosa per gli altri 3 lembi di pasta [19]. Allungate quindi l'impasto piegandolo su se stesso [20] e procedete con la pirlatura: pirlare l'impasto significa farlo girare con le mani sul ripiano di lavoro portandolo verso di voi e poi allontanandolo ripetutamente fino ad ottenere una sfera liscia e regolare [21].
+
+![step 22,23,24](https://ricette.giallozafferano.it/images/ricette/238/23808/23808_draft-impasto-per-pizza_strip_22-24.jpg)
+
+*Photo credits: [Giallo Zafferano](https://ricette.giallozafferano.it/)*
+
+Trasferite man mano i panetti in una cassetta per pizza precedentemente unta [22], coprite con il coperchio [23] e lasciateli riposare per altri 30 minuti [24], prima di poter tirare l’impasto per la pizza e condirlo a vostro piacimento!
