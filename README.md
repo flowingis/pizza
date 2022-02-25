@@ -2,6 +2,8 @@
 
 La pizza di Flowing è buonissima, seguici su [#flw-cooking]() per nuove ricette.
 
+Credits: [Margherita](https://ricette.giallozafferano.it/Pizza-Margherita.html), [Salame e olive](https://ricette.giallozafferano.it/Pizza-con-salame-e-olive.html), [Pomodorini gialli, acciughe e capperi](https://ricette.giallozafferano.it/Pizza-con-pomodorini-gialli-acciughe-e-capperi.html)
+
 ## PER CONDIRE
 
 ### Margherita
