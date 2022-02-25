@@ -18,3 +18,10 @@ La pizza di Flowing è buonissima, seguici su [#flw-cooking]() per nuove ricette
 - Olio extravergine d'oliva q.b.
 - Salame napoletano q.b.
 - Olive taggiasche q.b.
+
+### Pomodorini gialli, acciughe e capperi
+
+- Mozzarella 520 g
+- Acciughe sott'olio già scolate 80 g
+- Capperi 60 g
+- Pomodorini gialli a pacchetelle 300 g
